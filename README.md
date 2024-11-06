@@ -1,0 +1,6 @@
+-  Hi, I’m Shaazi
+-  I’m interested in Cats...
+-  I’m currently learning Nothing.
+-  How to reach me: No.Way.To.Reach.Me.
+-  Pronouns: He.Him.Chair.
+-  Fun fact: ummm i dont know any...
